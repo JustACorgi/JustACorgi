@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JustACorgi
+- 👋 Hi, I’m BlastBoxGames
 - 👀 I’m interested in coding
 - 😄 Pronouns: Walmart Bag, Can of Beans, and Fish
 - ⚡ Fun fact: Ohio town yeah
